@@ -42,4 +42,4 @@ The Pro version offers a more intuitive interface and better tools, making video
 
 These features make CapCut Pro an excellent choice for users who want to create high-quality, professional-level videos with greater customization and fewer limitations compared to the free version
 
-![]
+![](https://github.com/Fbarraka/CapCut-Pro-activator/blob/main/Emblem.jpg)
